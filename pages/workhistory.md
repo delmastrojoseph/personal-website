@@ -1,6 +1,9 @@
 
         # Relevant Work Experience
 
+## Lawyers' Committee For Civil Rights Under Law
+Administrative Coordinator, August 2026 - November 2026
+
 ## Progressive Policy Institute
 Policy Fellow, Jan - Dec 2025
 
